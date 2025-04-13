@@ -16,6 +16,6 @@
 
 - Fun fact: I'm fun to be with, easy going and less dramatic.
 
-- ** Author
+- **Author**
 
 - [Frederick Alice]
